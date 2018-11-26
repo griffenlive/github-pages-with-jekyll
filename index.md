@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Griffen's page
 
-I'm glad you are here. I plan to talk about ...
+Sit down and grab a snack because with the sheer number of conspiracies I've thought of we're gonna go on a wild ride to woke-town. 
